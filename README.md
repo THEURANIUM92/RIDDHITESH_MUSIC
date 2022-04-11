@@ -1,7 +1,7 @@
 ### Best Smart Voice Chat Music Robot For Telegram Groups ...
 
 
-<p align="center"><a href="https://t.me/THE_URANIUM_OP"><img src="https://telegra.ph/file/a0a21112a3a1bdefcdb6d.jpg"></a></p>
+<p align="center"><a href="https://t.me/THE_URANIUM"><img src="https://telegra.ph/file/a0a21112a3a1bdefcdb6d.jpg"></a></p>
 
 
 
@@ -26,4 +26,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![URANIUM](https://telegra.ph/file/285f1d2c2acd28fae9fb6.jpg)](https://t.me/THE_URANIUM_OP)
+[![URANIUM](https://telegra.ph/file/285f1d2c2acd28fae9fb6.jpg)](https://t.me/THE_URANIUM)
